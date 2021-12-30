@@ -13,7 +13,11 @@
   * Minsk State Linguistic University (2012-2017) - linguist, teacher of Russian and German
   * Belarussian State Economic University (2015-2017) - economist, logistics specialist
 
-**English level:** B1. Two year experince of english teacher at school
+**Languages:** 
+  * English - Upper-intermediate 
+  * Russian - Native
+  * German - Basic
+
 
 Имя и фамилия
 Контакты для связи
